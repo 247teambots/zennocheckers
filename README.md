@@ -1,4 +1,4 @@
-# 247team bots for zennoposter
+# 247bots fast checkers for [spotify fansly hetzner iproyal and more] 
 
 zennoposter 7.8.0.0+ fast checkers for [spotify fansly hetzner iproyal and more] by [247team](https://t.me/team_247)
 
